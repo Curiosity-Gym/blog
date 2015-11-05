@@ -14,6 +14,9 @@ post_slider_check_key:
 categories:
   - Talks
 ---
+
+![img_20151013_174927](https://cloud.githubusercontent.com/assets/4735401/10969068/ecbaf188-83eb-11e5-88f4-f8dadf759228.jpg)
+
 We had a seminar on Oct 13, 2015 at Curiosity Gym, which we co-hosted along with ORF Mumbai.
 
 The seminar was well attended and had interesting insights from Dr Shahaf Gal, founder of Nomad Horizons, an Israeli Innovation and Education consultancy firm.  Dr Gal elucidated insights into how natural instincts of creativity are suppressed as one grows up and to foster innovation, failure and attempts have to be encouraged carefully throughout spontaneous learning moments. He explained the work at Ankori Studio school in Israel which incorporated systemic and innovative practices for education and required students to work in 8 week cycles on an inter disciplinary theme that culminated into performing a studio/skit/art form that was presented by the students to the rest of the class.
@@ -25,3 +28,5 @@ Mr Hemant Lagvankar, Science Communicator and Educational Consultant, gave insig
 Mr Milind Chindarkar, Trustee of Mahatma Gandhi VidyaMandir, Bandra gave examples of how innovativeness and creativity was fostered at the school by allowing the students to not only have civic elections, democratically make and implement certain rules for the students to abide by and  make decisions on school cleanliness and implementation.
 
 The range and views of the diverse set of attendees and panelists made for a very healthy discussion, that continued with active participation from all and did not require much moderation.  Several attendees participated and contributed to the discussion including educationists, NGOs, corporates, ranging from Cathedral School at Fort,  Pawar School at Bhandup, Muktangan, Vigyan Ashram, Waldorf School at Andheri W, Zilla Parishad Marathi School at Dapoli, Reliance Industries and ORF Mumbai.  The seminar concluded with agreement from the participants that they should continue the dialogue, continue to share ideas, meet again &#8211; and decide on one action with the goal of continued fostering of innovation in the classroom and implement it internally within their spheres of influence.
+
+

@@ -26,8 +26,11 @@ We have had the feeling for a long while, that a place to go to, so as to get he
 
 So, whether you are a **student** needing some help on a project, wanting to learn why or how something works and would like to build your own device/drone/train or anything else, a **youth** looking to find your career by meeting with people who have done something in your prospective field before or a budding **entrepreneur** looking for mentoring help on design or manufacturing or marketing or scaling your startup or a stay at home **mom, business person or a retiree** looking to learn some new technology and meet interesting people, Curiosity Gym is a place to come to.
 
-While there are Gyms for exercise of the body and temples for your religion and other organisations to find your spirit, Curiosity Gym is a place for you to catalyse your own curiosity and imagine your next question. And yes, in case you were wondering what a Whyer is, we call people who have curiosity and would like to sign up to being part of a regular at Curiosity Gym,  a Whyer. <img   src="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7" data-src="http://curiositygym.com/wp-includes/images/smilies/simple-smile.png"  alt=":-)" class="wp-smiley" style="height: 1em; max-height: 1em;" />
+![11904075_1705905909633191_6886276616763067838_n](https://cloud.githubusercontent.com/assets/4735401/10969620/9e045e68-83ef-11e5-8bc0-9480a68c4052.jpg)
 
-See Photos from our Open House Album  on the Curiosity Gym Facebook page.
+While there are Gyms for exercise of the body and temples for your religion and other organisations to find your spirit, Curiosity Gym is a place for you to catalyse your own curiosity and imagine your next question. And yes, in case you were wondering what a Whyer is, we call people who have curiosity and would like to sign up to being part of a regular at Curiosity Gym,  a Whyer. 
+![11873464_1705900096300439_5699774780387115178_n](https://cloud.githubusercontent.com/assets/4735401/10969681/e78d5f30-83ef-11e5-9e34-0071b2459375.jpg)
+
+See more Photos from our Open House Album  on the Curiosity Gym Facebook page.
 
 &nbsp;
