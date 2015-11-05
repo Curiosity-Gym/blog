@@ -32,7 +32,7 @@ If you cant fathom how, come for a class.
 
 Now Asma, Vibhav, Rupin and I met at about 1:30, in the lovely ACed room of the &#8220;gym&#8221;. Rupin had about 3 things he wished to be built for the space, one of which, due to him being vertically challenged, was a stool. (nudge nudge)
 
-[<img  class="alignnone size-medium wp-image-315"  src="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7" data-src="http://curiositygym.com/wp-content/uploads/2015/10/IMG_20151024_135950-300x225.jpg"  alt="IMG_20151024_135950" width="300" height="225" />][1]
+![img_20151024_135950](https://cloud.githubusercontent.com/assets/4735401/10968776/8c75a9f0-83e9-11e5-9cda-c7bf1871c792.jpg)
 
 <div>
   We chose this as a project doable in 4 hours.
@@ -55,11 +55,17 @@ This meant 5 pieces of wood to be cut up.We were using second hand wood, and add
 
 I believe Vibhav went first; according to Asma, its gents first when using dangerous power tools. hahahaha.
 
-[<img  class="alignnone size-medium wp-image-322"  src="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7" data-src="http://curiositygym.com/wp-content/uploads/2015/10/IMG_20151024_164728-300x225.jpg"  alt="IMG_20151024_164728" width="300" height="225" />][2]  [<img  class="alignnone size-medium wp-image-325"  src="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7" data-src="http://curiositygym.com/wp-content/uploads/2015/10/IMG_20151024_1446081-300x225.jpg"  alt="IMG_20151024_144608" width="300" height="225" />][3][<img  class="alignnone size-medium wp-image-327"  src="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7" data-src="http://curiositygym.com/wp-content/uploads/2015/10/IMG_20151024_155521-300x225.jpg"  alt="IMG_20151024_155521" width="300" height="225" />][4]
+![img_20151024_164728](https://cloud.githubusercontent.com/assets/4735401/10968828/11646db8-83ea-11e5-99d0-3a2141d26395.jpg)
+
 
 <div>
   Not surprisingly both of them got their first ever cut down pat. Both hands safely on the tool, balance perfect and above all perfect patience. It was sheer poetry .
 </div>
+
+![img_20151024_1446081](https://cloud.githubusercontent.com/assets/4735401/10968869/6fe1dcf4-83ea-11e5-9bfc-e7041b7ff27d.jpg)
+
+![img_20151024_155521](https://cloud.githubusercontent.com/assets/4735401/10968886/8dd813ea-83ea-11e5-8b1f-1e0f8d7466c8.jpg)
+
 
 <div>
   We used all the power tools that CG had to offer. The circular saw to get those long straight cuts, then the jig saw for hmm &#8220;fun&#8221;, and finally the drill.
@@ -69,12 +75,11 @@ I believe Vibhav went first; according to Asma, its gents first when using dange
 </div>
 
 <div>
-  <a href="http://curiositygym.com/wp-content/uploads/2015/10/IMG_20151024_133739.jpg"><img  class="alignnone size-medium wp-image-320"  src="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7" data-src="http://curiositygym.com/wp-content/uploads/2015/10/IMG_20151024_133739-300x225.jpg"  alt="IMG_20151024_133739" width="300" height="225" /></a>
+![img_20151024_133739](https://cloud.githubusercontent.com/assets/4735401/10968930/da625964-83ea-11e5-901a-b34884f1c9e0.jpg)
 </div>
 
 I then gave my standard spiel about screwing. (Ok stop giggling!) followed by a bit of joinery and we put together the stool.
 
-[<img  class="alignnone size-medium wp-image-323"  src="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7" data-src="http://curiositygym.com/wp-content/uploads/2015/10/IMG_20151024_182146-300x225.jpg"  alt="IMG_20151024_182146" width="300" height="225" />][5]
 
 <div>
   <strong>Close up</strong>
@@ -87,9 +92,5 @@ All in all a great day spent with a lovely set of people sharing my love and pas
 <div>
   The world is a good and exciting place.
 </div>
+![img_20151024_182146](https://cloud.githubusercontent.com/assets/4735401/10968945/07c227a4-83eb-11e5-8636-3d78fef60035.jpg)
 
- [1]: http://curiositygym.com/wp-content/uploads/2015/10/IMG_20151024_135950.jpg
- [2]: http://curiositygym.com/wp-content/uploads/2015/10/IMG_20151024_164728.jpg
- [3]: http://curiositygym.com/wp-content/uploads/2015/10/IMG_20151024_1446081.jpg
- [4]: http://curiositygym.com/wp-content/uploads/2015/10/IMG_20151024_155521.jpg
- [5]: http://curiositygym.com/wp-content/uploads/2015/10/IMG_20151024_182146.jpg
