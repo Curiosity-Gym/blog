@@ -15,6 +15,7 @@ categories:
   - Talks
 ---
 A special guest speaker at the Curiosity Gym Open House was Huzefa Mehta,
+![11949397_1705912069632575_6456367182928979276_n](https://cloud.githubusercontent.com/assets/4735401/10969558/2c8a65d4-83ef-11e5-91ff-895671a60cae.jpg)
 
 <div>
   A brief introduction for those of you who did not attend the talk.

@@ -1,6 +1,6 @@
 ---
 id: 305
-title: Build for Rupin
+title: First wood working workshop 
 author: Viren Vaz
 layout: post
 guid: http://curiositygym.com/?p=305
