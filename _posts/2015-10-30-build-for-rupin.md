@@ -1,6 +1,6 @@
 ---
 id: 305
-title: First wood working workshop 
+title: Wood working workshop 
 author: Viren Vaz
 layout: post
 guid: http://curiositygym.com/?p=305
